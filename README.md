@@ -19,8 +19,8 @@ Last.
 이거는 기니까 노래만 듣고 싶으시면 03'45''부터 들으시면 됩니당'^'ㅎ
 
 
-아이고~ 이거 제가 "청출어람"하는거 아닌가 모르겠넴 ㅎㅎ힣
-비와서 더 추운데 모두 따숩게 주무세여ㅎㅎ 이거근데 은근 시간 걸리네.. Prof. Mosquito님 respect함니다^^7  
+아이고~ 이거 제가 "청출어람"하는거 아닌가 모르겠넴 ㅎㅎ힣  
+비와서 더 추운데 모두 따숩게 주무세여ㅎㅎ 이거근데 은근 시간 걸리네.. Prof. Mosquito님 always respect함니다^^7(그니까 담턴은 님이 하삼ㅎㅎㅎ)  
 
 이상 DJ. Hand를 대신하여 today music time을 진행한 망고쑤였습니다^^* 
 ![](https://opgg-com-image.akamaized.net/attach/images/20200419023816.8522.jpg)  
