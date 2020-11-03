@@ -1,27 +1,23 @@
 # umm
-![](https://lh3.googleusercontent.com/proxy/l9AvHHT83Qb7zsynaEcqEbBQCt_pkP_Yz_cOH6BP2nq5c4Y6qP9-iOhPGu77jN_D5vS1I0ahVHeCZE8M2LbfZl2JRl9hSoVOKnIYbv19mAtpbDNsNS3mQFWEM4mA1EaaXY9XEe73gx6acOUCGx98IOyZn7DHFPeMCubYd-Dctu-dyGg_HIo)  
-쓰읍 나도 볼링 잘 치고 싶다..  
+![](https://img3.tmon.kr/cdn3/deals/2020/05/27/3653242106/front_3359b_gt9uo.jpg)  
+오늘 너무 추워서 얼어버린 맹고..  
 
-경<<<DJ. MANGOso0 Debut[데뷔]>>>축  
-오늘은 비도 오고 그래서~ 갬성갬성으로 준비해씀니돠^^ 맘에 드시길ㅎ  
+First. 찬 바람이 부는 날에는~♪  
+[추운 날, 하늘이 구름없이 더 맑아요ㅎ 그래서 별도 더 잘 보이는 듯](https://youtu.be/JLT8qOdpDPM)    
 
-First. 
-[이 노래 다들아시져? '비'오니까 대놓고 'Rain' 추천드림^^](https://youtu.be/m6mW7-VStJ4)  
+Second. 태연ㅠㅠis LOVE  
+[제목: 나 여기 있어!](https://youtu.be/-Oa76PAVZMU)    
 
-Second. 
-[ㅠㅠ노래는 좋지만 너무 슬픈 노래라서 함부로 들을 수 없었던 노래..ㅠ](https://youtu.be/IDaatLjz45U)  
+Thrid. 이거 읽을 수 있는 사람~?ㅋㅋkP  
+[月亮代表我的心](https://youtu.be/SgT3pqowwos)    
 
-Thrid.
-[열허분 오늘부터 11월인거 아시져?이제 우리 2X.88888세 임. ㅎr..](https://youtu.be/eooZvdQKiMM)  
+4th. 꼭 가사보지말고 들으세여ㅎ  
+[영어 모르면 좋은 노래ㅎ](https://youtu.be/vJnjTTn1Ksc)    
 
-Last.
-[오늘 아침부터 스터디하면서..생각난 노래^^ㅠ 이 길이 맞나~](https://youtu.be/YS10Cdaz2Kk)  
-이거는 기니까 노래만 듣고 싶으시면 03'45''부터 들으시면 됩니당'^'ㅎ
+Last. My 최애곡 공유해드림  
+[Mattress](https://youtu.be/seNNCbiXTSY)  
 
-
-아이고~ 이거 제가 "청출어람"하는거 아닌가 모르겠넴 ㅎㅎ힣  
-비와서 더 추운데 모두 따숩게 주무세여ㅎㅎ 이거근데 은근 시간 걸리네.. Prof. Mosquito님 always respect함니다^^7(그니까 담턴은 님이 하삼ㅎㅎㅎ)  
-
-이상 DJ. Hand를 대신하여 today music time을 진행한 망고쑤였습니다^^* 
-![](https://opgg-com-image.akamaized.net/attach/images/20200419023816.8522.jpg)  
-p.s. github professor님아 이거 gif는 못넣음??? -o-
+![](https://lh3.googleusercontent.com/proxy/z5OSVbEPRg2XvKge3IPFtx0gHuCa0ZroDPSssmoDpOgD847te2Cki2kCsQuZrjA0GGCWtibc9mlthgA3CM7EMDJKtL3ddruPzfz5CGFi-LWzsZd1cymKKx9CaTV8hPKbCfzxYIUCE7emoXHQpNhyowR-CCP_L6xwymA7gYEi_mPZXL0HHNXuq7JdQcaYKjAAOVlCeUZCUlBdM7Y0aZuXBfM75gSLG0XXbKojpRGPMIiEBUzKvI2_kEFk-FDIvVYFgl7p73Jlle9xIsQQ0L-XEAoq-8Az5twvhETi_Qi9HEf5yVIH)  
+Ha..노래방 가고 싶어지는 밤이네여...  
+모두들 추운데 이불 잘 덮구 따숩게 잘자용ㅎㅎzzZ  
+오늘도 방문해주신 모든 팬들 여러분께 감사인사드리며 이만 줄이겠습니다~^^7  
