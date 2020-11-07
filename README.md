@@ -13,7 +13,8 @@ Thrid. 예전에 한창 빠져서 계속듣다 질릴뻔한 너래ㅋㅋ 저는 
 [: 이비자에서 약 했어-v-](https://youtu.be/u3VFzuUiTGw)       
 
 Last. 요즘 인싸 노래^^듣고 가시져  
-[전국방방곡곡을 다니고 있는 이날치의 쏭 feat.한국관광공사](https://youtu.be/RcrwSWw3bH8)    
+[전국방방곡곡을 다니고 있는 이날치의 쏭 feat.한국관광공사](https://youtu.be/RcrwSWw3bH8)  
+수업시간에 부를 노래로 이 노래를 추천드림니당^^*     
 
 ![](https://search.pstatic.net/common/?src=http%3A%2F%2Fblogfiles.naver.net%2FMjAxNzA3MjBfNjcg%2FMDAxNTAwNTQzMjg1ODk4.p5_6F3n3NH_QfSm_aM1E-TTRMAC0_U3i3zZD6KoTR38g.DElhqgeg6flB_k_ohCHUsROTLNFeQDxdfp1IvYkkAyAg.JPEG.fotolia_korea%2F%25B1%25CD%25BF%25A9%25BF%25EE_%25B0%25AD%25BE%25C6%25C1%25F6_%25BB%25E7%25C1%25F8_1.jpg&type=sc960_832)  
 그럼 안뇽~!   
