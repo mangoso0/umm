@@ -1,21 +1,23 @@
 # umm
-![](https://search.pstatic.net/common/?src=http%3A%2F%2Fblogfiles.naver.net%2FMjAyMDEwMjRfOTUg%2FMDAxNjAzNTI0MTIzOTUw.bn_8rAJApu0UGeOEtcTa0eY5DRXKhGr58mKqQrY_iu4g.Lq-NR3okkV-AVbKjje1IrNkpAOLAPEsQTF6wKd0iUHQg.JPEG.davle9073%2F3.jpg&type=sc960_832)   
-어이 7조 어서오고~  
+![](https://lh3.googleusercontent.com/proxy/WovhNIDtsseBFaVLrk1y9MBqBscAaZfdO1Yv1KHRSfaaYPsxXjszw2ShTZSnF9Xle8N2tXo8zn3RdjllYbCAPLqC_kBU1Rb4CFY2x5bcA0sdxmWIuTLY8YGE8tBOZIcHalKvz5qMLXwwS1JsQ2TRdGxdES8mrb8DMpzILbgSARqmtxJU)   
+기타치는 귀여운 악어칭구:3  
 
-First. 오늘 날씨 너무 좋당♪ 이런 날에 잔나비의 신곡들 더 잘 어울리는 것 가타여ㅎㅎ  
-[잔나비 소곡집 1](https://youtu.be/1Dv0RwiPpnw)  
-[Today's Pick](https://youtu.be/of0b34A5rpw)    
+First. 좋은 음악에 꿀목소리+가사 깔기-!  
+[khai dreams - Fantasy](https://youtu.be/VlbXv2cs3y4)    
 
-Second. 음색깡패'o'  
-[셰이드-트램폴린](https://youtu.be/4h26oYuE2h0)    
+Second. 요즘 빠진 노래1 (디지니 영상에 노래나오는 것도 느낌잇던데 일단은 원본ㅎ)  
+저는 I'm mad at bowling bowling~^^ㅋ  
+[Mad at Disney](https://youtu.be/SJeOQC6wsCw)    
 
-Thrid. 예전에 한창 빠져서 계속듣다 질릴뻔한 너래ㅋㅋ 저는 갠적으로 리믹스버젼이 좋더라구요  
-[: 이비자에서 약 했어-v-](https://youtu.be/u3VFzuUiTGw)       
+Thrid. 요즘 빠진 노래2  
+가사 중에 특히 욕(F word)나오는 부분이 중독쩖,,;ㅎㅎ
+[Blackbear - Hot girl bummer](https://youtu.be/k-T4Odb-r5c)       
 
-Last. 요즘 인싸 노래^^듣고 가시져  
-[전국방방곡곡을 다니고 있는 이날치의 쏭 feat.한국관광공사](https://youtu.be/RcrwSWw3bH8)  
-수업시간에 부를 노래로 이 노래를 추천드림니당^^*     
+Last. 대망의 라스트 곡은 세계 최강 DJ님께서 맘에 두고 계신 노랜데여  
+이거 짱좋아서 피아노곡으로 많이 들었었는데 기타버전은 또첨보네여ㄷㄷ 느낌 좀 마니 달라짐 아련아련~띵가띵가~  
+[플라워땐스~^^b](https://youtu.be/LLt_LQ2JYYc)  
+자기 전에 꼭 듣고 가세여 ㅎㅎ     
 
-![](https://search.pstatic.net/common/?src=http%3A%2F%2Fblogfiles.naver.net%2FMjAxNzA3MjBfNjcg%2FMDAxNTAwNTQzMjg1ODk4.p5_6F3n3NH_QfSm_aM1E-TTRMAC0_U3i3zZD6KoTR38g.DElhqgeg6flB_k_ohCHUsROTLNFeQDxdfp1IvYkkAyAg.JPEG.fotolia_korea%2F%25B1%25CD%25BF%25A9%25BF%25EE_%25B0%25AD%25BE%25C6%25C1%25F6_%25BB%25E7%25C1%25F8_1.jpg&type=sc960_832)  
-그럼 안뇽~!   
-Mangoso"0" in Chang-won.
+![](https://s3.ap-northeast-2.amazonaws.com/asking-nfs/asking/images/y/u/l/1/0/0/4e69199b-1844-42d0-a141-d776ceed40c1.1539790547454.jpg)  
+모두들 오늘 하루도 수고하셧슴니당 ㅎㅎ 잘자용~!   
+Mangoso"0"
