@@ -10,7 +10,7 @@ Second. 요즘 빠진 노래1 (디지니 영상에 노래나오는 것도 느낌
 [Mad at Disney](https://youtu.be/SJeOQC6wsCw)    
 
 Thrid. 요즘 빠진 노래2  
-가사 중에 특히 욕(F word)나오는 부분이 중독쩖,,;ㅎㅎ
+가사 중에 특히 욕(F word)나오는 부분이 중독쩖,,;ㅎㅎ  
 [Blackbear - Hot girl bummer](https://youtu.be/k-T4Odb-r5c)       
 
 Last. 대망의 라스트 곡은 세계 최강 DJ님께서 맘에 두고 계신 노랜데여  
