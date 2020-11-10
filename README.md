@@ -18,6 +18,6 @@ Last. 대망의 라스트 곡은 세계 최강 DJ님께서 맘에 두고 계신 
 [플라워땐스~^^b](https://youtu.be/LLt_LQ2JYYc)  
 자기 전에 꼭 듣고 가세여 ㅎㅎ     
 
-![](https://s3.ap-northeast-2.amazonaws.com/asking-nfs/asking/images/y/u/l/1/0/0/4e69199b-1844-42d0-a141-d776ceed40c1.1539790547454.jpg)  
+![](https://fimg4.pann.com/new/download.jsp?FileID=49827771)  
 모두들 오늘 하루도 수고하셧슴니당 ㅎㅎ 잘자용~!   
 Mangoso"0"
