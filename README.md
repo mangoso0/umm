@@ -1,23 +1,21 @@
 # umm
-![](https://lh3.googleusercontent.com/proxy/WovhNIDtsseBFaVLrk1y9MBqBscAaZfdO1Yv1KHRSfaaYPsxXjszw2ShTZSnF9Xle8N2tXo8zn3RdjllYbCAPLqC_kBU1Rb4CFY2x5bcA0sdxmWIuTLY8YGE8tBOZIcHalKvz5qMLXwwS1JsQ2TRdGxdES8mrb8DMpzILbgSARqmtxJU)   
-기타치는 귀여운 악어칭구:3  
+![](https://post-phinf.pstatic.net/MjAyMDA0MTZfMTIz/MDAxNTg3MDA1NTYwNTgz._Zh9jNsacH7_0M3ZcIrnCrkjOlqwv3GZ_w4_ejm7t3Yg.J5OgWpQc6Hqlnr4eKu5lrkOHmHxbg5Tx-Z7wG4PPaywg.JPEG/%EB%B3%B8%EB%AC%B81.jpg?type=w1200)   
+오늘의 한마디↑  
+갑작스런 대타에도 항상 준비되어있는 맹고의 자세. 본받으십쇼^^    
 
-First. 좋은 음악에 꿀목소리+가사 깔기-!  
-[khai dreams - Fantasy](https://youtu.be/VlbXv2cs3y4)    
+First. Plz wait --  참고로 이거 세계최강디제이 추천곡임니당^^
+[아뉘 잠깐만 좀 기다려바"Wait" 올리는 중임 ](https://youtu.be/aEB8zsSC_cw)    
 
-Second. 요즘 빠진 노래1 (디지니 영상에 노래나오는 것도 느낌잇던데 일단은 원본ㅎ)  
-저는 I'm mad at bowling bowling~^^ㅋ  
-[Mad at Disney](https://youtu.be/SJeOQC6wsCw)    
+Second. 이거 편곡이 좀됐긴해도 넘 좋아여 추천드림ㅎㅎ  
+[남해미루님이 부르신 버젼](https://youtu.be/xXnLD92uu3s)    
 
-Thrid. 요즘 빠진 노래2  
-가사 중에 특히 욕(F word)나오는 부분이 중독쩖,,;ㅎㅎ  
-[Blackbear - Hot girl bummer](https://youtu.be/k-T4Odb-r5c)       
+Thrid. 아진쨔-_-손떙땡씨가 빨리올리라거 재촉하네여 ㅎ 근데 글씨체 오ㅐ이렇게됐는지 아시는분?ㅋㅋㅋㅋㅋ  
 
-Last. 대망의 라스트 곡은 세계 최강 DJ님께서 맘에 두고 계신 노랜데여  
-이거 짱좋아서 피아노곡으로 많이 들었었는데 기타버전은 또첨보네여ㄷㄷ 느낌 좀 마니 달라짐 아련아련~띵가띵가~  
-[플라워땐스~^^b](https://youtu.be/LLt_LQ2JYYc)  
-자기 전에 꼭 듣고 가세여 ㅎㅎ     
+[비트를 탑시다 꿍짝꿍짝](https://youtu.be/t4m0w3xzDrA)       
 
-![](https://fimg4.pann.com/new/download.jsp?FileID=49827771)  
-모두들 오늘 하루도 수고하셧슴니당 ㅎㅎ 잘자용~!   
+Last. 태연은 항상 옳다  
+[When I was young](https://youtu.be/crckWQ4yCOQ)    
+
+![](https://joubebe.com/wys2/file_attach/2018/10/24/1540369264_90582.jpg)  
+다들 굿나잇zzZ    
 Mangoso"0"
