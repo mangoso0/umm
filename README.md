@@ -18,5 +18,6 @@ Last. 부인이랑 뮤비찍으심 쏘달달
 ![](https://img.huffingtonpost.com/asset/5c806edb2400009c04a2c561.jpeg?cache=pSCRrVez0s&ops=scalefit_630_noupscale)  
 추천드리고 시픈 곡들이 넘쳐나는데,, 오늘은 좀 잔잔한 것들로 여기까지^^  
 2탄에서 또 만나여~ 담번은 좀 더 비트있는걸루다가 들고오겟숨다 ㅎㅎ  
-다들 GB(굿밤)zzZ    
+다들 GB(굿밤)zzZ      
+
 Mangoso"0"
