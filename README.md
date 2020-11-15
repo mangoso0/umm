@@ -1,21 +1,22 @@
 # umm
-![](https://post-phinf.pstatic.net/MjAyMDA0MTZfMTIz/MDAxNTg3MDA1NTYwNTgz._Zh9jNsacH7_0M3ZcIrnCrkjOlqwv3GZ_w4_ejm7t3Yg.J5OgWpQc6Hqlnr4eKu5lrkOHmHxbg5Tx-Z7wG4PPaywg.JPEG/%EB%B3%B8%EB%AC%B81.jpg?type=w1200)   
-오늘의 한마디↑  
-갑작스런 대타에도 항상 준비되어있는 맹고의 자세. 본받으십쇼^^    
+![](https://img1.daumcdn.net/thumb/S600x434/?scode=1boon&fname=https://t1.daumcdn.net/liveboard/music/2f62fcaeb462436b846fd2f1e642ef69.JPG)   
+★덴마크 조각상 "크리스토퍼" 특집(1탄^^)!!★       
 
-First. Plz wait --  참고로 이거 세계최강디제이 추천곡임니당^^  
-[아뉘 잠깐만 좀 기다려바"Wait" 올리는 중임 ](https://youtu.be/aEB8zsSC_cw)    
+First. 크리스토퍼를 잘 모르시는 분들께 올리는 두 곡  
+[한국인의 떼창에 감동받고 바닥에 드러누운 걸로 유명한 영상-Bad](https://youtu.be/8b0ul-yKMUE)  
+[최근에 청하님과의 콜라보로 뜬 노래(카페나 식당이나 어딜가든 나옴;행복ㅎㅎ)-Badboy](https://youtu.be/8WOawEvEGWc)
 
-Second. 이거 편곡이 좀됐긴해도 넘 좋아여 추천드림ㅎㅎ  
-[남해미루님이 부르신 버젼](https://youtu.be/xXnLD92uu3s)    
+Second. 갠적으로 저는 이노래로 입덕함여 ㅎ 음색미췸  
+[My heart](https://youtu.be/sb3axG_4Zck)    
 
-Thrid. 아진쨔-_-손떙땡씨가 빨리올리라거 재촉하네여 ㅎ 근데 글씨체 오ㅐ이렇게됐는지 아시는분?ㅋㅋㅋㅋㅋ  
+Thrid. ㅎr..자기전에 듣기 추천드립니돠 ㅎㅎ 천상계목소리임    
+[Heartbeat](https://youtu.be/TBuC8216snA)       
 
-[비트를 탑시다 꿍짝꿍짝](https://youtu.be/t4m0w3xzDrA)       
+Last. 부인이랑 뮤비찍으심 쏘달달  
+[Ghost](https://youtu.be/80-veR2oYHE)    
 
-Last. 태연은 항상 옳다  
-[When I was young](https://youtu.be/crckWQ4yCOQ)    
-
-![](https://joubebe.com/wys2/file_attach/2018/10/24/1540369264_90582.jpg)  
-다들 굿나잇zzZ    
+![](https://img.huffingtonpost.com/asset/5c806edb2400009c04a2c561.jpeg?cache=pSCRrVez0s&ops=scalefit_630_noupscale)  
+추천드리고 시픈 곡들이 넘쳐나는데,, 오늘은 좀 잔잔한 것들로 여기까지^^  
+2탄에서 또 만나여~ 담번은 좀 더 비트있는걸루다가 들고오겟숨다 ㅎㅎ  
+다들 GB(굿밤)zzZ    
 Mangoso"0"
