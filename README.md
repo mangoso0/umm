@@ -1,23 +1,18 @@
 # umm
-![](https://img1.daumcdn.net/thumb/S600x434/?scode=1boon&fname=https://t1.daumcdn.net/liveboard/music/2f62fcaeb462436b846fd2f1e642ef69.JPG)   
-★덴마크 조각상 "크리스토퍼" 특집(1탄^^)!!★       
+![](https://i.pinimg.com/474x/69/a7/8e/69a78ea093e7fe2a87daedf7e06f23ab.jpg)   
+★공부하좌(언젠간)★       
 
-First. 크리스토퍼를 잘 모르시는 분들께 올리는 두 곡  
-[한국인의 떼창에 감동받고 바닥에 드러누운 걸로 유명한 영상-Bad](https://youtu.be/8b0ul-yKMUE)  
-[최근에 청하님과의 콜라보로 뜬 노래(카페나 식당이나 어딜가든 나옴;행복ㅎㅎ)-Badboy](https://youtu.be/8WOawEvEGWc)
+First. 그냥 이노래 좋음여ㅎㅎ  
+[적재-나랑 같이 걸을래](https://youtu.be/2HQ8VoxDhHo)
 
-Second. 갠적으로 저는 이노래로 입덕함여 ㅎ 음색미췸  
-[My heart](https://youtu.be/sb3axG_4Zck)    
+Second. 어제 카공하다가 줍줍  
+[Ryan Christopher(아뉘..크리스토퍼들은 노래를 왜케 잘함?ㅎ)-Love Light](https://youtu.be/ek47AedbCME)    
 
-Thrid. ㅎr..자기전에 듣기 추천드립니돠 ㅎㅎ 천상계목소리임    
-[Heartbeat](https://youtu.be/TBuC8216snA)       
+Last. 금사빠 갬성~^ㅅ^(by. DJ.Hand)    
+[와르르♥](https://youtu.be/RNlrfhOAzpM)       
+    
 
-Last. 부인이랑 뮤비찍으심 쏘달달  
-[Ghost](https://youtu.be/80-veR2oYHE)    
-
-![](https://img.huffingtonpost.com/asset/5c806edb2400009c04a2c561.jpeg?cache=pSCRrVez0s&ops=scalefit_630_noupscale)  
-추천드리고 시픈 곡들이 넘쳐나는데,, 오늘은 좀 잔잔한 것들로 여기까지^^  
-2탄에서 또 만나여~ 담번은 좀 더 비트있는걸루다가 들고오겟숨다 ㅎㅎ  
+![](https://opgg-com-image.akamaized.net/attach/images/20190919175225.27588.jpg)  
 다들 GB(굿밤)zzZ      
 
-Mangoso"0"
+__Mangoso"0"
