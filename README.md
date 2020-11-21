@@ -3,10 +3,10 @@
 안녕 어서오고~       
 
 First. 맹고 추천 곡*^^*  
-[빛나는 거](https://youtu.be/2HQ8VoxDhHo)
+[빛나는 거](https://youtu.be/_28ih_kFJvs)
 
 Second. YJ's List에서 줍줍^^b 춤추고 시픈 너래네여ㅎㅎ  
-[Take u dancing](https://youtu.be/ek47AedbCME)    
+[Take u dancing](https://youtu.be/WE4wn-PEDYc)    
 
 Thrid. 비움에서 들었으면 좋았을거 같은 곡 하나 ~  
 [bad intentions](https://youtu.be/CPmOSmPmUsw)    
