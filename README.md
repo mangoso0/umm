@@ -8,15 +8,15 @@ First. 맹고 추천 곡*^^*
 Second. YJ's List에서 줍줍^^b 춤추고 시픈 너래네여ㅎㅎ  
 [Take u dancing](https://youtu.be/ek47AedbCME)    
 
-https://youtu.be/CPmOSmPmUsw>> bad intentions
-비움에서 들었으면 좋았을거 같은 곡 하나 ~
+Thrid. 비움에서 들었으면 좋았을거 같은 곡 하나 ~  
+[bad intentions](https://youtu.be/CPmOSmPmUsw)    
 
-https://youtu.be/vEbrlBzRudU >> tuxedo - do it
+Last. [tuxedo - do it](https://youtu.be/vEbrlBzRudU)  
 tuxedo 입고 do it 
-))
-((
-))
-((
+))  
+((  
+))  
+((  
     
 
 ![](https://t1.daumcdn.net/cfile/tistory/27316F365875BD0D28)  
