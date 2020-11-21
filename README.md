@@ -12,7 +12,7 @@ Thrid. 비움에서 들었으면 좋았을거 같은 곡 하나 ~
 [bad intentions](https://youtu.be/CPmOSmPmUsw)    
 
 Last. [tuxedo - do it](https://youtu.be/vEbrlBzRudU)  
-tuxedo 입고 do it 
+tuxedo 입고 do it  
 ))  
 ((  
 ))  
