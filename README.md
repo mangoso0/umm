@@ -8,7 +8,7 @@ First. 15초에 아이유 목소리 나옴ㅎ
 Second.   
 [너 때문이야](https://youtu.be/pLDXOebjblk)    
 
-Thrid. 먼가 느끼한데 중독적임;ㅎㅎ 
+Thrid. 먼가 느끼한데 중독적임;ㅎㅎ  
 [좋아보여](https://youtu.be/NFJ10iqNgMo)    
 
 4th. 냐냐냐  
