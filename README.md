@@ -1,5 +1,5 @@
 # umm
-![](https://upload.wikimedia.org/wikipedia/commons/b/bb/Jjamppong.jpg)   
+![]()   
 고전 띵곡들(슈프림팀, 버벌진트ㅋ) + 잔잔한 자장가 의 짬뽕조합~*^^*        
 
 First. 15초에 아이유 목소리 나옴ㅎ  
