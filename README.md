@@ -1,18 +1,19 @@
 # umm
-![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQSNOwcD0cXBq-6LQdbhavbsqj7QwIEoU29pw&usqp=CAU)   
-원슈타인 목소리 좋은듯  
-셤기간엔 뭘 해두 재밋네여&^^*
+![](https://lh3.googleusercontent.com/proxy/OS800FS0XlHfZUTRQP6bRADLSYE4R_v-aU4Q_0SNHI2W3ARkIjv1Nn6LTlp2vgeab8_WDj-w3OVAJb_HJzFNSR4FSV1Ts9UtXkjS8lGKtaMVirjCsQNDcekqgiZMr4HL_d7pZ-qSoKgZI44a5NUkl0P4Op55y938Ns9DUg)   
+이거슨 _행복회로^^.    
 
-First. 셤기간은 안아름답고도 아픔ㅇ(원곡 비투비-아름답고도 아프구나)  
-[원슈-안아름답고도 안아프구나](https://youtu.be/tYmkwwljdJQ)    
+First. 도로질주하면서 듣고 시픈 노래   
+[배치기-뜨래요](https://youtu.be/J0g0zsj6p7A)    
 
-Second. 마미손도 올만에 ㅎㅇ  
-[헷갈뤼게하지 ㅇ나하](https://youtu.be/sRkXQDIommw)    
+Second. 시간은 가고~ (시험은) 모두 잊어버렸겠지~  
+[바 람 아 불 어라~](https://youtu.be/Ee-cFzZFMpc)    
 
-Last. 유명하지만 예전에 제목만보고 엥ㅇ?햇던곡  
-[빌리 넘 치명적ㄹㅇ- wish u were gay](https://youtu.be/YgUdyBQA37c)    
+Last. 핑쿠곰도리의 천상계 목소리 듣고가시져~ 하이라이트 라임 쥬김(꽥-_-)  
 
-![](https://lh3.googleusercontent.com/proxy/FomLVfdBa0f1iqYHUJC5RKyfsqhfGLqKgnqaFESN0h5lo8ljft5guLGTLKJk-G8NoLgE0TEdPBrjDdQTsy9BtCFFXZJidxWjAENduXXo2zHCPi7G4YKfJH8zcI6Yr8Q1o2q8eDdU4LZATfEVksZeI6jV9PG4dyl9jqG6iqUSFELNsRWzbsfUAibbZG5tj3s4RLZoAp_Z29n-j3kkGDj3L1nqx06qi1T3ZLqyxyQ7YdkB9vuzOcjnMsDLiu92BcJ7BUa8KES-bR2I7iJxQIawoFnhy8ZEzhkVMG6tjqhRpBIUy4NE5Ii4KRCpQiEzf9aALy09qcE9W63zqO4aixPCTbd4JAQtWDKHx0Y)  
-멘탈 붙일 풀 or 접착제 구함      
+[Pink Sweat$- At My Worst](https://youtu.be/9J0Qx2Vn8i8)    
 
-__Maaaaaaangoso0
+![](https://i.pinimg.com/originals/0d/6a/2e/0d6a2e7456ee521c5a9a4c454f645186.jpg)  
+불타는 행복회로. But I'm fine.  
+![](https://upload2.inven.co.kr/upload/2017/05/03/bbs/i16194583615.jpg)    
+
+__COMEBACK Mangoso0
