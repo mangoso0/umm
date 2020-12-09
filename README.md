@@ -9,7 +9,6 @@ Second. 시간은 가고~ (시험은) 모두 잊어버렸겠지~
 [바 람 아 불 어라~](https://youtu.be/Ee-cFzZFMpc)    
 
 Last. 핑쿠곰도리의 천상계 목소리 듣고가시져~ 하이라이트 라임 쥬김(꽥-_-)  
-
 [Pink Sweat$- At My Worst](https://youtu.be/9J0Qx2Vn8i8)    
 
 ![](https://i.pinimg.com/originals/0d/6a/2e/0d6a2e7456ee521c5a9a4c454f645186.jpg)  
